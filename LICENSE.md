@@ -1,4 +1,4 @@
-# 
+# VIP Adobe Premiere Pro PC版 脚本 是最佳 Adobe Premiere Pro PC版 脚本，集成 压缩 和 旋转范围。安全、可靠、优化，性能最大化。
 
 
 
